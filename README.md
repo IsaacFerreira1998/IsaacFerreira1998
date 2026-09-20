@@ -1,6 +1,6 @@
 ## Óla! Eu sou o IsaacFerreira1998 👋
 
-- 🔭 Trabalho de jovem Aprendiz de T.I na Amazon.
+- 🔭 Estagiário de Limite da conta no Santander.
 - 🌱 Estudando Ciencia da Computação
 - 📫 Contate-me no email: isaac.ferreira1898@gmail.com
 - 😄 Pronouns: Ele/Dele
